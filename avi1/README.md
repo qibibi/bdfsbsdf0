@@ -1,1 +1,1 @@
-# aviator-krysha.github.io
+# aviator-qibibi
